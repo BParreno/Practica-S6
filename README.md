@@ -1,1 +1,0 @@
-# Practica-S6
